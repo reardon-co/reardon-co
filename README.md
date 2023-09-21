@@ -1,1 +1,1 @@
-Senior CS and Business student at Northeastern University
+Recent CS and Business grad at Northeastern University
